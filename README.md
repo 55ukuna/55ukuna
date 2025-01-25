@@ -1,5 +1,7 @@
  <div align="center"> 
 
+ ![](https://i.pinimg.com/736x/bc/85/9f/bc859f6f8c97bd87a3f90ad2e28a5fd6.jpg)
+
  [jjk rp server](https://discord.gg/4VHMmkYGUm) . ⊂⊃ . [learn ab me](https://mmahito.carrd.co/)
 
  [draw on here idk!!!](https://zynthova.straw.page/) . ⊂⊃ . [another strawpage](https://uraume-sama.straw.page/) 
@@ -7,13 +9,14 @@
 . [⊂⊃](https://rentry.co/angeliccountdown) . 
 
 [‹𝟹 . roblox](https://www.roblox.com/users/1581608642/profile)
+
 Don't steal the username Zynthova on anthing or I will beg for it back.
 
 ![](https://i.pinimg.com/736x/1d/41/72/1d417257bd6486a7d8bb3ef4d3dc689a.jpg)
 
 ![](https://komarev.com/ghpvc/?username=55ukun&label=Demonic+Curses&color=4f0409)
 
- ♥︎₊˚ *Quincy / Ura* ⧽ Any Prns (He/They pref)
+ ♥︎₊˚ *Quince / Ura* / ***Oaty*** ⧽ Any Prns (He/They pref)
 
 **17**yo . *Panromantic* AroAce ++ Agender ⟡
 
