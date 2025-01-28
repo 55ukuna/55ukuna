@@ -28,23 +28,21 @@ Don't steal the username Zynthova on anthing or I will beg for it back.
 
 ![](https://64.media.tumblr.com/4016e5f13a33ad37e82054ad37f8bde8/e3a2de8c478d99e3-f4/s500x750/1482a7483609d060b63e4ae5e886a89059046a5d.jpg)
 
-Common reminder we, yes *we*, are dyslexic. We have spelling issues,
+Common reminder i am dyslexic. i have spelling issues,
 
-even if it looks like we can type perfectly fine. 
+even if it looks like i can type perfectly fine. 
 
-" We " because we are a system, if you've not caught on.
+If you're interacting to cause drama / to hate on me or my boyfriend,
 
-If you're interacting to cause drama / to hate on us or our boyfriend,
+i will argue back before hiding you. i do not block/hide often, so
 
-we will argue back before hiding you. We do not block/hide often, so
+you must be real special to get me to hide you. Just saying.
 
-you must be real special to get us to hide you. Just saying.
+Do interact, i love interaction! Unless it's to use our supporter title
 
-Do interact, We love interaction! Unless it's to use our supporter title
+to use for building. If i'm with our friends or not feeling well, i
 
-to use for building. If we're with our friends or not feeling well, we 
-
-will ignore you. (We'd ignore anyway). We do not like beggars, im sorry.
+will ignore you. (i'd ignore anyway). i do not like beggars, im sorry.
 
 I hope you finish that build soon. :heart:
 
