@@ -5,7 +5,7 @@
 
  ![](https://komarev.com/ghpvc/?username=55ukun&label=Demonic+Curses&color=4f0409)
 
- [jjk rp server](lolutried) . ⊂⊃ . [learn ab me](https://mmahito.carrd.co/)
+ [ata book](https://5ukuna.atabook.org/) . ⊂⊃ . [learn ab me](https://mmahito.carrd.co/)
 
  [draw on here idk!!!](https://zynthova.straw.page/) . ⊂⊃ . [another strawpage](https://uraume-sama.straw.page/) 
 
